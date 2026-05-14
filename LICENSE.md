@@ -1,4 +1,4 @@
-
+Download secure steal a brainrot Script for steal a brainrot, the best script available, featuring silent aim and auto-sell. This powerful tool ensures you have the upper hand in
 
 
 
